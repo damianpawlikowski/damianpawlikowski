@@ -6,4 +6,4 @@
 ---
 - 👥 The power of meaningful relationships is growth
 - ✨ You won’t be successful if you don’t want others to succeed
-- 🤝 Great things are never done by one person; they are **done by a team of amazing people
+- 🤝 Great things are never done by one person; they are done by a team of amazing people
